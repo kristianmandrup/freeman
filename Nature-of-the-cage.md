@@ -532,7 +532,190 @@ and can not be used against a human. Owing money is NO a crime, and you can neve
 
 The whole of the debt industry runs on fear and ignorance.
 
-Now if debt collectors call me, the first thing I say is: "Thank you very much for paying off my debt".
+Now if debt collectors call me, the first thing I say is: 
+Me: "Thank you very much for paying off my debt. That's really kind of you".
+Him: "What do you mean?"
+Me: "Well, you bought my debt, maybe just for 10%, but as far as I'm concerned, you've paid off my bank account"
+
+The whole system is designed to get us into debt. A debt which cannot be paid off. So there is no reason to feel guilty.
+The fact is, that it doesn't matter how many cuts we make (austerity), we cannot possibly pay of the debt, because debt is the 
+money itself and there is never enough money in the system to pay off the cumulative interest rate. 
+That money has and can never been loaned into existence without creating even more debt, and so on indefinitely.
+
+If it wasn't for this pyramid scheme of a money system, we would have abundance.
+
+People assume that when debt collectors come around, that they have actual power to do something to you.
+In actuality they have absolutely NO power whatsoever. They ONLY have the power YOU give to them.
+They are 3rd party interlopers or technicalla "a third party intervener"
+
+They are interfering in your financial affairs. You didn't contract with them 
+and don't know who they are. They bully or trick you into contracting with them. If you contract with them, they
+can legally chase you for money. One trick they use is to say: "Give us just 1 pound per month"
+Most people feel that sounds reasonable if they feel guilty and truly believe they have a debt to pay.
+But as soon as you start paying them, you have contracted with them, so now you have to pay the full amount.
+Debt collectors generally disappear as soon as you show them you know your rights and know what you are talking about.
+They are only there to bully the weak, who don't know how to take a stand and don't know what their rights are. 
+
+"The only person that owes a debt, it the person who worries about it" - it's as simple as that
+
+Don't worry about your debt. It's NOT real.
+
+The most important thing when dealing with anyone or any situation, is to get informed. If not, you are at their mercy.
+Understand your rights and understand their rights (what they can do and NOT do). Then you are in a much better position
+to defend yourself.
+
+No one has power over you. The system is just an illusion, created by the mind of man. Owing momney or breaching a contract
+can never be remedied by force. knowledge is your most powerful weapon.
+
+### Dealing with Debt
+
+The simplest method:
+
+"Addressee unknown - Retun to sender"
+
+You are NOT the title (mr, mrs) or the person (name in capital letters).
+When dealing with the bank, simply ask:
+
+- "Where did the money come from?"
+- "Do I have a valid contract with you?"
+
+If you can't prove these points, then we agree to the following terms: debt null and void
+Send the letters 10 days apart (certified mail) to give them time to respond.
+
+GetOutOfDebtFree.org contains template letters where you fill in the blanks. This approach has
+helped thousands get out of debt. The forum on the site also provides a treasure 
+trove of information and experiences from people having been in similar situations and community 
+support in general.
+
+As part of the letters sent back, is a fee schedule. Any more communication beyond this point 
+will cost them, according to the fee schedule.
+
+If they continue harasing you, start sending them invoices. If they don't pay the invoices you can go
+to the small claims court online and start pursuing them for the money.
+
+The only power they have over us is FEAR. You have NO OBLIGATION to deal with debt collectors.
+Always let them know that you will charge them money for any future time with you.
+
+The debt collectors have actually already bought off your debt (at a discount). So your debt no longer exists.
+
+"Can you give us a copy of the contract, signed by both parties?" ie. you and the debt collectors.
+Obviously no such contract exists. In general, we (as human flesh and blood) can never contract with 
+a fictitious entity (legal fiction or corporation).
+
+### Debt collectors of Bailifs at your door
+
+Debt collectors have no right of entry. If they make threats, then they are breaking the law.
+Normally sending the 3 letters and an estoppel is enough to make them stop and go away.
+
+If you go outside, bring a camera and film the encounter. Tell them that you do not want to deal with them.
+Tell them you will only deal with them via post or over the phone. Tell them to leave you alone.
+If they continue or make threats, call the police. They will have no warrant, as it is a civil case.
+They have NO power, only empty threats.
+
+Bailifs have very few powers, if any. First send them a "Removal of Implied rights of Access".
+This remove the Bailif's Common Law right to access your property. From there on, as soon as he
+sets foot on your property he is committing tresspassing, which you can sue him for.
+
+Put this notice on your door or gate if he comes onto your property. If you go out to meet and speak to him,
+go out with a Notepad, pen and a Camera - taking notes. In this situation they will realise they are being 
+challenged and will most likely back off. Also ask them: "Can I pleae see a signed Warrant from the court?"
+The Warrant must have been signed by an actual Judge. In the very unlikely case that the Bailif can produce such as document
+make a copy (photo) of the Warrant and contact the court, to ensure that the signature is indeed by a real Judge.
+
+Bailiffs are like Vampires. You have to allow them in once in order for you to contract with them and give them the 
+power to enter your property.
+
+They might state: Once we have a "walking possesion order" we can legally go in and remove possesions. But they never have such an order until you have invited them in.
+If they touch you it is assault. So if they try to push past you to get access, it is assualt, and the entry is illegal.
+Never let them in. Make sure the property is locked at all times.
+
+Only in exceptional circumstances, such as:
+- Commercial Court Fines
+- Income Tax Arrears
+- Property is Commercial Premises
+
+Can reasonable force be used to gain entry. But only as a last resort when all other avenues have been exhausted.
+
+Control of Goods Act, Schedule 12:
+
+"A power to use force does not include power to force against persons, except to the extent that regulations provide
+that it does"
+
+Criminal Law Act, 1997, Part II
+
+From "Offences relating to entering or remaining on property"
+
+"Any person, who without lawful authority, uses or threatens the use of violence for the purpose of securing entry
+into any premises for himself or for any other person is guilty of an offense"
+
+Gov.uk website
+
+Bailiffs must usually give you 7 days notice of their first visit.
+
+You usually don't have to open the door to a bailiff or let them in
+Bailiffs can't enter your home:
+
+- by force, eg. push past you
+- if only children under 16 or vulnerable people are present
+- between 9pm and 6am
+- through anything except the door
+
+You:
+
+- A Human being
+- Human Rights are absolute
+- Only unto the law
+- The highest Authority
+
+Bailiff:
+
+- Works for a corporation
+- Has a fictional title, representing a fiction
+- No rights to use force
+- Has some sort of court order
+
+Police Officer:
+
+- Public Servant (you are the Public)
+- There to prevent a Breach of the Peace
+
+There are plenty of case laws that show that the aggressor is the one to be arrested
+
+Redmond-Bate v Director of Public Prosecutions. The Times lulv 28. 1998
+Nicol and Selvanayagam v Director of Public Prosecutions (1996)
+R v Howell (1981) 73 Cr.App.R.31
+
+Only a sufficiently real and present threat to the peace justified depriving a citizen, 
+not at the time acting lawfully, of his liberty
+
+The threat must come from the person being arrested
+
+The conduct must clearly interfere with the rights of others and its natural consequence must
+be "not wholly unreasonable violence" from a 3rd party  
+
+The conduct of the person to be arrested must be unreasonable
+
+You cannot obstruct a Bailiff from his duties.
+
+"The debtor cannot initiate violence but the degree of resistance may be matched to the force 
+being used to try to get in." Weaver v Bush (1795), Simpson v Morris (1813), Polkinhorne v Wright (1845)
+
+Fisher & Lightwoods Law of Mortgages 13th edition "If physical possesion is to be taken it must be taken peaceably"
+
+1981 R v Howell: Is the Authority for defining a Breach of the Peace
+
+"There is a Breach of the Peace whenever harm is actually done or is likely to be done to a person or in his 
+presence to his property or 
+
+
+
+
+- 
+
+
+
+
+
 
 
 
