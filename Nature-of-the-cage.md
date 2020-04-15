@@ -777,46 +777,22 @@ and are doing something every day for ONE reason, TO SURVIVE. They have to go to
  NOT noticing because they are being distracted. We need to be adults and open our eyes. 
  We need to see what is happening, otherwise we will be in this New World Order, one system of control, and we're all
  going to be slaves in every sense of the word. That's the way it is going and the true reality of the world we live in 
- at the moment. 
+ at the moment.
 
-See [HOW I CLOBBERED EVERY BUREAUCRATIC CASH-CONFISCATORY AGENCY KNOWN TO MAN](http://www.thecrowhouse.com/Documents/mary-book.pdf) by Mary Elizabeth Croft
+See the book: [HOW I CLOBBERED EVERY BUREAUCRATIC CASH-CONFISCATORY AGENCY KNOWN TO MAN](http://www.thecrowhouse.com/Documents/mary-book.pdf) by Mary Elizabeth Croft
+ 
+10 years ago there was no real community, no template letters. Now 10 years later, we have loads of communities and template letters.
+The movement is growing exponentially! People are finally waking up. 
+People are suddenly realising: "We've been had! By the banks, government, corporations..."
+Endless wars, poverty, ... keeping us on that threadmill.
 
+"Nobody can give you freedom. Nobody can give you equality, justice or anything. If you're a man, you take it" - Malcome X
 
-
-
-
-
-
-
-
-
-
-
-
-
-- 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-1:02
-
-  
-
-
-
-
-
+The most important kind of freedom is to be what you really are.
+You trade in you reality for a role. You trade in your sense for an act.
+You give up your ability to feel, and in exchange put on a mask.
+There can't be any large scale revolution, until there's a 
+personal revolution, on an individual level
 
 ## Hidden Law history of UK
 
