@@ -705,7 +705,91 @@ Fisher & Lightwoods Law of Mortgages 13th edition "If physical possesion is to b
 1981 R v Howell: Is the Authority for defining a Breach of the Peace
 
 "There is a Breach of the Peace whenever harm is actually done or is likely to be done to a person or in his 
-presence to his property or 
+presence to his property or a person is in fear of being so harmed through an assault, an array or riot, 
+unlawful assembly or other disturbance"
+
+Bibby vs Chief Constable of Essex (2000) Court of Appeal
+
+Bibby spells out for police officers - "Make sure you identify where the threat is coming from, IF you have time that is"
+
+"The Officer had no right to force his way into the respondent's house, which was the respondent's castle.
+Whether the officer was known or not, this was illegal and therefore he was not in the execution of his duty at all
+when he was assualted. He seems to have provoked the assault. As he was clearly not in the execution of his duty
+our judgement is for the respondent."
+
+Sir Alexander Cockburn on Broughton v Wilkerson where Wilkerson defended himself against bailiffs using force 
+trying to get entry.
+
+Lord Losh also commented:
+
+"Every man's house is his castle. That has been settled long ago, and a bailiff cannot force his way 
+inside to lay execution for a debt. It is impossible to read this case and say that the bailiff was 
+in execution of his duty."
+
+Vaughan v McKenzie (1969) where Bailiffs used force to enter and were opposed by the occupier
+
+Lord Parker: 
+
+"Ms McKenzie was perfectly entitled to resist entry being made against her will and if force is used, 
+she could oppose it with reasonable force."
+
+Debunking the common myth, that a bailiff can gain entry by breaking open a door or use a foot to stop
+a door being closed. A bailiff placing a foot in the door is a trespasser and any levy attempted after this
+is invalid and the entry to the premises may be resisted.
+
+### Final thoughts
+
+There is no way to live free in this land. I wanted to buy some land and live free from the system.
+The system will not allow you to do that. The system will come for you and kick you off your own land
+and force you to live the way they want you to live. 
+
+People need to get educated and start realising what is going on around them. Generally people tend to 
+only give a damn when it is on their doorstep and it is happening to them. We can't wait for that to happen,
+because we've got a system built around us that has completely taken over every aspect of our lives.
+
+To people who are worried about debt, don't worry about it. Worry about the important things in life, real things
+like the people close to you, family, kids. Never get a mortgage (death contract) - always buy in full or even better,
+have the registration canceled and your initial signature count as full payment, voiding the mortgage payback.
+
+To change the world, we all ned to come together and work on fixing all the pieces of the jigsaw puzzle.
+
+The people stand above the government
+The government stand above citizens
+
+Citizenship was actually created with the abolition of the slave trade, so that slaves could be given the
+same rights as free people but without the same power. The citizens were always going to be ascribed their
+rights and responsibilites, by the government, so they could keep a finger on the ex-slaves. Now that has been
+applied to everybody. It's been completely normalised that everyone is a citizen, who ONLY has rights and responsilities,
+because the government gave it to them and their standing as The People will be long forgotten by them.
+
+The sadness in this, is that there are a lot of people out there, that are involved in the commercial construct,
+and are doing something every day for ONE reason, TO SURVIVE. They have to go to work every single day and know,
+ that what they are doing is not moral, but they HAVE to do it, because they feel there is no other way they 
+ can support their family. They are taxed to the hilt. Everything they have got, they are threatened with its removal
+ if they do NOT comply. That's a very sad situation. This means that the human mind is being controlled by a construct
+ and can't escape that construct. It gets worse day in and day out. 
+
+ Ignorance is our fault, not being up to speed on what's going on is our responsibility, we are giving our 
+ power away to people who are using it against us. People need to wake up to what is really going on before it's 
+ too late. Stop looking at the mainstream media and newspapers, start looking at some information that is 
+ real and relevant, otherwise we will all be micro-chipped and controlled. We can barely do anything now, having to 
+ ask permission to demonstrate agains the government. Our freedoms are being taken away by the day and people are 
+ NOT noticing because they are being distracted. We need to be adults and open our eyes. 
+ We need to see what is happening, otherwise we will be in this New World Order, one system of control, and we're all
+ going to be slaves in every sense of the word. That's the way it is going and the true reality of the world we live in 
+ at the moment. 
+
+See [HOW I CLOBBERED EVERY BUREAUCRATIC CASH-CONFISCATORY AGENCY KNOWN TO MAN](http://www.thecrowhouse.com/Documents/mary-book.pdf) by Mary Elizabeth Croft
+
+
+
+
+
+
+
+
+
+
 
 
 
